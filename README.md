@@ -9,7 +9,7 @@
 
 ![image](https://user-images.githubusercontent.com/71851715/96633213-b7dc3a80-1310-11eb-8340-a1e998bb655b.png)
 
- cette page contient les réseaus sociaux de cette marque de broderie, et la page de contact .
+ cette page contient les réseaux sociaux de cette marque de broderie, et la page de contact .
  
 •	Facebook : https://www.facebook.com/Mrama-And-Craft-117038483481748/
 
